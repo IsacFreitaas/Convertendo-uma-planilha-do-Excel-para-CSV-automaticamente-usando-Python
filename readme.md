@@ -94,8 +94,16 @@ Estudante de Ciência de Dados e Inteligência Artificial.  <div><img align="rig
 
 
 
-Insta: [@isac.sfreitas](https://www.instagram.com/isac.sfreitas/)  Twitter: [isaczeitgeist](https://x.com/isaczeitgeist)  Canal: [isac zeitgeist](https://www.youtube.com/@chuckbum)
+Insta: [@isac.sfreitas](https://www.instagram.com/isac.sfreitas/)
 
 
 
-Obrigado pela atenção!
+Twitter: [isaczeitgeist](https://x.com/isaczeitgeist)  
+
+
+
+Canal: [isac zeitgeist](https://www.youtube.com/@chuckbum)
+
+
+
+###### Obrigado pela atenção!
